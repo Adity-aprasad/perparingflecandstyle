@@ -16,7 +16,10 @@ This repository contains resources and styles for preparing files in various for
 ![WhatsApp Image 2024-12-26 at 16 22 31](https://github.com/user-attachments/assets/7f68f764-9fce-4e32-ba95-b64a856996fd)
 
 
-![WhatsApp Image 2024-12-26 at 16 22 31 (1)](https://github.com/user-attachments/assets/e30e0914-6148-420a-8b94-27a76645c298)
+
+![WhatsApp Image 2024-12-26 at 16 22 31](https://github.com/user-attachments/assets/2ab37c9a-450a-4554-84d1-72ad1ab8d90a)
+
+
 
 ![WhatsApp Image 2024-12-26 at 16 22 31 (1)](https://github.com/user-attachments/assets/f1347d77-8a2a-4fe2-aeeb-5a2780ddbf1e)
 
